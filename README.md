@@ -1,1 +1,0 @@
-# ajviedma21.github.io
